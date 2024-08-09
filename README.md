@@ -3,8 +3,8 @@
 - 🌱 I’m currently learning ... como programar e entender a computação.
 - 💞️ I’m looking to collaborate on ... que me ajude.
 - 📫 How to reach me ...
-- 😄 Pronouns: ...
-- ⚡ Fun fact: ...
+- 😄 Pronouns: ...ele/dele
+- ⚡ Fun fact: ...eu sou bom no rocket league.
 - 
   
 
